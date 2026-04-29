@@ -1,4 +1,4 @@
-
+Experience 3008 like never before with custom Scripts for 3008, the #1 Script. Includes auto-farm and god mode for unbeatable performance.
 
 
 
